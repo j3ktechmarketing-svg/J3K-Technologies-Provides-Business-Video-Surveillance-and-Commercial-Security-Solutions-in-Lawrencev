@@ -1,5 +1,5 @@
 
-# J3K Technologies Provides Business Video Surveillance and Commercial Security Solutions in Lawrenceville GA
+# J3K Technologies Provides Business Video Surveillance and Commercial Security Solutions in Lawrenceville Georgia (GA)
 
 Protecting employees, customers and valuable business assets requires more than traditional security measures. Modern video surveillance systems provide real-time monitoring, intelligent recording, remote access, and advanced analytics that help businesses improve security while maintaining operational efficiency. 
 
